@@ -1,0 +1,5 @@
+- Hi, I’m @MoeedFurqan
+- I’m interested in programming.
+- I’m currently learning C language.
+- I’m looking to collaborate on C based projects..
+- How to reach me via gmail aigmalik123@gmail.com
